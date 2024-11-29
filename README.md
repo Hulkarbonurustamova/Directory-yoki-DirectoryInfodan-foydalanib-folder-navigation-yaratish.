@@ -1,0 +1,1 @@
+# Directory-yoki-DirectoryInfodan-foydalanib-folder-navigation-yaratish.
